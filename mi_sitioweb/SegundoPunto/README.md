@@ -1,0 +1,1 @@
+Se corrige la estrucutura
